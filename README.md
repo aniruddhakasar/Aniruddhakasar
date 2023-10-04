@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as Acidimic Project Developer and Frelancer <br><br>🌱 I’m currently learning BE Information Technology<br><br>👨‍💻 All of my projects are available at :- https://aniruddhakasar.github.io/portfoliio/<br><br>📫 How to reach me aniruddhakasar2001@gmail.com<br><br>📄 Know about my experiences :- https://drive.google.com/file/d/1adfsJvInLEm4KKlT8n0fS-ugWqWd5wiA/view?usp=drive_link<br><br>⚡ Fun fact I Am Funny
+🔭 I’m currently working as Acidimic Project Developer and Frelancer <br><br>🌱 I’m currently learning BE Information Technology<br><br>👨‍💻 All of my projects are available at :- https://aniruddhakasar.github.io/portfoliio/<br><br>📫 How to reach me aniruddhakasar2001@gmail.com<br><br>📄 Know about my experiences :- https://drive.google.com/file/d/1PEOEAdDVH5n8V67XST_1MTjf5ANYWEj5/view?usp=drive_link<br><br>⚡ Fun fact I Am Funny
 
 
 ## 🌐 Socials:
